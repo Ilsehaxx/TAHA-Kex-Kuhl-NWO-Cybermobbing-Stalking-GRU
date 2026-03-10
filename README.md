@@ -30,6 +30,28 @@ Forschung zu Medienmanipulation in Bezug auf Russland und die AfD-Partei, einsch
 - Alben: Verschiedene Alben
 - Forschungszusammenfassung verfügbar.
 
+### ZENSERY (Zensery)
+- Echter Name: Luca Zempel
+- Geboren: in Berlin, Deutschland, lebt in Teltow, Brandenburg
+- Alben: Tatendrang (2019), Frisch Vom Basar (2018)
+- Forschungszusammenfassung verfügbar.
+
+### Schleini Mali (Schleini & Mali)
+- Genre: Elektronische Musik, Hardtek
+- Forschungszusammenfassung verfügbar.
+
+### Hanybal (Hanybal)
+- Echter Name: Sascha-Ramy Nour
+- Geboren: 22.10.1983 in Frankfurt am Main
+- Alben: Verschiedene Alben mit 439, Fleisch (2019)
+- Forschungszusammenfassung verfügbar.
+
+### Disarstar (Disarstar)
+- Echter Name: Gerrit Falius
+- Geboren: in Hamburg, Deutschland
+- Alben: Waving The Guns, Pöbel MC, PTK
+- Forschungszusammenfassung verfügbar.
+
 ### Herr Kuchen (Herr Kuchen)
 - Echter Name: Herr Kuchen
 - Geboren: in Deutschland

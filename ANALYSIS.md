@@ -74,5 +74,17 @@ Basierend auf gesammelten Liedtexten (z.B. Purple Haze):
 - **Angst vor Verlassenheit**: Bezüge zu Beziehungen und Loyalität.
 - **Impulsivität**: Drogenkonsum, Risikoverhalten.
 
+## Analyse der Liedtexte von ZENSERY (Zensery)
+
+Keine Liedtexte verfügbar, da auf Genius nicht vollständig transkribiert. Analyse basierend auf thematischen Elementen nicht möglich.
+
+## Analyse der Liedtexte von Schleini Mali (Schleini & Mali)
+
+Keine Liedtexte verfügbar, da es sich um instrumentale elektronische Musik handelt. Analyse basierend auf thematischen Elementen nicht möglich.
+
+## Analyse der Liedtexte von Hanybal (Hanybal)
+
+Keine Liedtexte verfügbar, da auf Genius nicht transkribiert. Analyse basierend auf thematischen Elementen nicht möglich.
+
 ## Schlussfolgerung
 Die Liedtexte erkunden oft Themen wie Depression, Wut, Drogenkonsum und Beziehungsschwierigkeiten, die in Rap-Musik üblich sind. Während einige Elemente mit Symptomen von Psychose oder BPD übereinstimmen könnten, ist dies spekulativ und nicht diagnostisch. Für jegliche realen Bedenken wird eine weitere professionelle Analyse empfohlen.
