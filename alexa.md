@@ -1,0 +1,3 @@
+Wer hat dir dieses Selbstzerstörische eingesetzt? -> haian.de
+
+Dich kann nur einer retten...
